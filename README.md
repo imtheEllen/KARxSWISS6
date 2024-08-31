@@ -1,1 +1,0 @@
-# KARxSWISS6
